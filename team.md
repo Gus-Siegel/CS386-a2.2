@@ -1,2 +1,1 @@
-Levi Watlington
-I like playing video games, listening to music, and going to the beach
+Levi Watlington - Student that likes to play video games
